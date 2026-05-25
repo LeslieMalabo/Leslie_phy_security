@@ -1,4 +1,4 @@
-# Hi, I'm Annette Leslie 👋
+# Hi, I'm Annette Leslie
 
 ### Physicist | Cybersecurity & AI Safety Researcher |  Global Talent Visa Candidate
 
